@@ -1,2 +1,0 @@
-# marketing-portfolio
-Marketing, digital analytics and commercial strategy projects by Antonio Canavan
